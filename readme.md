@@ -1,0 +1,1 @@
+Estou achando muita novidade ja que não sou da área de programação e estou me ingressando agora.
